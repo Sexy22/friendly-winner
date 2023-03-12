@@ -1,0 +1,2 @@
+# friendly-winner
+https://www.youtube.com/redirect?event=comments&amp;redir_token=QUFFLUhqbmVfUzVRUVItRnl3TFZGTG8yRHYtVDlEVDJRZ3xBQ3Jtc0tsaXJKSmM0Mk16VG85QmlYRHdHQktkZHN0dW8wSWdOa1puVmp3Q3Y2MVk5ZUVSQjdpWktDWHRkSXF5U1RkS0p1RnpjVGZ0SXNFTHpxZ3VacGFHZXhRSkd2TVVzRFVVVXVzYkRwNTU3d0lUQ2ZjWjdVUQ&amp;q=https%3A%2F%2Fv.ht%2FLc1BU&amp;html_redirect=1
